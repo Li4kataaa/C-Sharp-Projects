@@ -1,1 +1,1 @@
-# @Everyting can be used for educational purposes!
+# Everyting can be used for educational purposes!
